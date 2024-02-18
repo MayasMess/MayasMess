@@ -1,4 +1,4 @@
-# 🏄‍♂️ Amayas Messara
+# 🏄‍♂️ Mayas Nova
 
 **`Freelance Python Developer`**
 
